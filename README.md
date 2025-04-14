@@ -1,6 +1,7 @@
-![SubZero_Taunt3_WalkAway](https://github.com/user-attachments/assets/76cf47ee-b25b-439c-a9bd-696c72ff53ef)
+![tumblr_a8b36f3b8641d39c0d36c781b9b14010_8803d149_1280](https://github.com/user-attachments/assets/dc628bcc-8007-4a07-bd0e-e3b68bca72a9)
 
-# RANDOM BITS OF INFO (⁠　⁠･⁠ω⁠･⁠)⁠☞
+
+# RANDOM BITS OF INFO 
 
 - Preferred pronouns: she/her (I do accept they/them though.)
 - Languages I speak in: polish or english.
