@@ -1,4 +1,5 @@
-![tumblr_a8b36f3b8641d39c0d36c781b9b14010_8803d149_1280](https://github.com/user-attachments/assets/dc628bcc-8007-4a07-bd0e-e3b68bca72a9)
+![tumblr_ed83f59e1ccb21bfeae030c78475a4b7_66df602f_540](https://github.com/user-attachments/assets/a232d073-1df3-496c-bad2-07516a80184d)
+
 
 
 # RANDOM BITS OF INFO 
@@ -43,6 +44,8 @@
   - Fellow self shipper or CANON X OC likers/havers. 
   - You are into any of the fandoms from the skins I am using and want to chat a bit about it.
   - Skins of: MK Bi-Han (Sub-Zero, Titan or Noob), any DMC Vergil skin, Aatrox from LoL skins, Albert Wesker skins, Sephiroth skins, L&DS Sylus skins, DBD Trickster skins, Leon from **pokemon** skins, Alice Asylum/Madness Returns etc. skins, Winx Club skins, Homicipher skins, MCU skins, Jason Todd/Red Hood/Arkham Knight skins and more.
+
+![i-made-mini-vergil-v0-2iln8hcplnh91](https://github.com/user-attachments/assets/97d4d6cf-d920-411d-86c2-db6fe9b90264)
 
 
 # RANDOM STAMPS!
@@ -108,5 +111,11 @@
 ![d9vokkh-d9a0f7b9-6941-47ac-a30a-00814b1c9c0e](https://github.com/user-attachments/assets/a427bda1-0aef-485a-9577-13d3da56bbf1)
 ![d9vol3f-79eb5e75-72cb-4bdf-85d9-499130e91648](https://github.com/user-attachments/assets/6b010e5b-53c5-4b0f-a665-abe402cd540b)
 ![dag8b57-73267034-fd5d-4686-9a1d-145d5afe903a](https://github.com/user-attachments/assets/cbd13b2c-9e3a-4aa5-923f-564efedf8af4)
+
+𝑬𝒗𝒆𝒓𝒚𝒃𝒐𝒅𝒚'𝒔 𝒇𝒂𝒍𝒍𝒊𝒏𝒈 𝒊𝒏 𝒍𝒐𝒗𝒆, 𝒂𝒏𝒅 𝑰'𝒎 𝒇𝒂𝒍𝒍𝒊𝒏𝒈 𝒃𝒆𝒉𝒊𝒏𝒅 
+⋆.˚✮🎧✮˚.⋆
+
+![Uploading cc4b038a726854c35d1449b36e48919d.jpg…]()
+
 
 
