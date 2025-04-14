@@ -38,6 +38,9 @@
 
 - I don't like being dragged into roleplays, especially romantic canon x OC ones. No, I won't sit as your fav character you ship your OC with and act lovey dovey with you. Find someone else to do that. I only let it slide with my close friends.
 
+  ![794e9cd335b8fb64114b02605bd7aff9](https://github.com/user-attachments/assets/e4b6b9f7-f005-40e9-a8dc-ece61f805085)
+
+
 
   # INT IF! ฅ⁠^⁠•⁠ﻌ⁠•⁠^⁠ฅ
 
@@ -115,7 +118,8 @@
 𝑬𝒗𝒆𝒓𝒚𝒃𝒐𝒅𝒚'𝒔 𝒇𝒂𝒍𝒍𝒊𝒏𝒈 𝒊𝒏 𝒍𝒐𝒗𝒆, 𝒂𝒏𝒅 𝑰'𝒎 𝒇𝒂𝒍𝒍𝒊𝒏𝒈 𝒃𝒆𝒉𝒊𝒏𝒅 
 ⋆.˚✮🎧✮˚.⋆
 
-![Uploading cc4b038a726854c35d1449b36e48919d.jpg…]()
+![ad8b7708bafc60fc8bddd2dfdb1c64b4](https://github.com/user-attachments/assets/f61c306d-8bad-4394-b44d-7e65542846ee)
+
 
 
 
